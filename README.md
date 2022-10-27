@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Tova
+- 👀 I’m interested in stuff
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate on stuff
+- 📫 How to reach me, with your arm
